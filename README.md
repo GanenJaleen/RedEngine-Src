@@ -1,3 +1,0 @@
-# RedENGINECRACK
-##GAYENGINE##
-
